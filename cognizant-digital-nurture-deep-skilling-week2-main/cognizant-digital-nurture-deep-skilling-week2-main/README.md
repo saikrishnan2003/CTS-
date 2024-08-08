@@ -1,1 +1,0 @@
-# cognizant-digital-nurture-deep-skilling-week2
